@@ -1,2 +1,2 @@
 # certificates
-These are the certifiactaions i have completed during my graduation
+browse through to check my hard work and passion through these certificatios
